@@ -16,7 +16,7 @@
         - 自宅には縦置きの液晶とDreamcast、そしてSteam版が用意してある
 -->
 
-# NO REFUGE: それ故に…悔いの残らぬよう、やり遂げなさい。
+# NO REFUGE: 理想の器
 
 ## Chapter 01：理想
 
